@@ -1,1 +1,1 @@
-# seaminei.github.io
+# [seaminei.github.io](https://hoo.be/mogusp)
